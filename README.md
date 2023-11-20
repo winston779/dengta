@@ -12,7 +12,11 @@
 
 ## 灯塔Cloud优惠码
 
-暂无优惠码活动
+VIP1季付 #九折优惠券：dengta9
+
+VIP2半年付 #八折优惠券：dengta8
+
+VIP2年付 #七折优惠券：dengta7
 
 ## 灯塔Cloud价格
 
