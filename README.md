@@ -1,6 +1,6 @@
 # 灯塔Cloud官网地址
 
-最新地址：[dengta.biz](https://dengta.biz/#/register?code=VvO4c9HV)
+最新地址：[dengta.biz](https://dengta.lat/#/register?code=VvO4c9HV)
 
 ## 灯塔Cloud介绍
 
@@ -12,11 +12,15 @@
 
 ## 灯塔Cloud优惠码
 
-VIP1季付 #九折优惠券：dengta9
+七折折优惠码: dt-city30
 
-VIP2半年付 #八折优惠券：dengta8
+适用于半年付及以下套餐，流量包适用
 
-VIP2年付 #七折优惠券：dengta7
+六五折优惠码: dt-city35
+
+适用年付及以上套餐，流量包不算年付
+
+截止日期24/03/30日
 
 ## 灯塔Cloud价格
 
