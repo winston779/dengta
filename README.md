@@ -1,6 +1,6 @@
 # 灯塔Cloud官网地址
 
-最新地址：[dengta.biz](https://dtcloud.pro/#/register?code=VvO4c9HV)
+最新地址：[dengta.biz](https://dengta.xn--xhq8sm16c5ls.com/#/register?code=VvO4c9HV)
 
 ## 灯塔Cloud介绍
 
